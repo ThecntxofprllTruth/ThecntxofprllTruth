@@ -2,7 +2,7 @@
 - 👀 I’m interested- in Music, Guitars, Art, Cars, Tech, METAL, books
 - 🌱 I’m currently- learning some languages at Uni
 - 💞️ I’m looking to collaborate on- idk yet
-- 📫 How to reach me- insta: @george_a.s
+- 📫 How to reach me- insta: @gworge._
 - 😄 Pronouns: ...
 - ⚡ Fun fact: - progamming is tiring and sometimes boring, yessir
 
